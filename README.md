@@ -6,8 +6,9 @@
 </p>
 <p align="center">
   gng go to my main instead for 
-  sum links like straw and 
-  sign my ata lelelelel
+</p>
+<p align="center">
+  sum links like straw and sign my ata lelelelel
 </p>
 <p align="center">
 ╰─..★.──────────╯

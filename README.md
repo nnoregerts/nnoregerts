@@ -2,7 +2,15 @@
   <img src="https://files.catbox.moe/dxkmkq.jpg" width="200">
 </p>
 <p align="center">
-  gng go to my main instead for sum links like straw and sign my ata lelelelel
+  ╭──────────.★..─╮
+</p>
+<p align="center">
+  gng go to my main instead for 
+  sum links like straw and 
+  sign my ata lelelelel
+</p>
+<p align="center">
+╰─..★.──────────╯
 </p>
 <p>
   <p align="center">
